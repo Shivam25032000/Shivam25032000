@@ -16,4 +16,4 @@
 
 📫 Let’s connect and collaborate!  
 - ✉️ **Email:** shivamkumarsingh25032000@gmail.com  
-- 🔗 [LinkedIn](https://www.linkedin.com/in/shivam-kumar-singh-349170197)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/shivam-kumar-singh-349170197/)
